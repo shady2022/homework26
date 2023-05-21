@@ -3,7 +3,7 @@
 ![rectangle](https://github.com/shady2022/homework26/assets/88148144/234da447-18cf-4a9b-a80f-3f2bd6cb9527)
 
 ###
-[2](https://github.com/shady2022/homework26/assets/88148144/219a26a2-614e-49f2-a102-ed6fafe6541e)
+![2](https://github.com/shady2022/homework26/assets/88148144/219a26a2-614e-49f2-a102-ed6fafe6541e)
 
 ![10](https://github.com/shady2022/homework26/assets/88148144/2e7a02a1-f16b-4b8c-9570-61275bfc2ccd)
 
